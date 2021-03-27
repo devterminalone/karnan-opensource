@@ -1,6 +1,6 @@
 # Karnan Movie Song - Pandarathi Puranam Original Version
 
-[Karan](https://en.wikipedia.org/wiki/Karnan_(2021_film) is a movie directed by acclaimed director [Mari Selvaraj](https://en.wikipedia.org/wiki/Mari_Selvaraj). Before the release of this film, they release three songs including a song titled Pandarathi Puranam.
+[Karan](https://en.wikipedia.org/wiki/Karnan_(2021_film)) is a movie directed by acclaimed director [Mari Selvaraj](https://en.wikipedia.org/wiki/Mari_Selvaraj). Before the release of this film, they release three songs including a song titled Pandarathi Puranam.
 
 Some groups took offence to the word Pandarathi and filed a case. Mari Selvaraj eventually agreed to change the name from Pandarathi to Manjanathi.
 
